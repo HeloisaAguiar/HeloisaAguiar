@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @HeloisaAguiar
-- 👀 I’m interested in ...música
+- 👀 I’m interested in ...direito
 - 🌱 I’m currently learning ...alura
 - 💞️ I’m looking to collaborate on ...apoio com a turma
 - 📫 How to reach me ...escola
